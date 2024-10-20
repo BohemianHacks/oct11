@@ -38,44 +38,6 @@ Our 8:00 service will begin with the song *Honestly We Just Need Jesus*, by Terr
 
 In addition to in-person worship, our service will be live-streamed. The service can be viewed on our [**Facebook Page**](https://www.facebook.com/NelsonMemorialUMC).  The service will start at approximately 10:20 am with our Gathering Song.  Additionally, we post a recording of our messages to [**our website**](http://nelsonmemorialumc.org/worship/current-message-series) by early Sunday afternoon. 
 
-**Announcements**
-
-**Get Those Bikes Ready**  
-Get ready for our annual Fall Bike Ride on October 27\.  We will meet at the Boonville Trailhead and ride about 2 miles, have some snacks, and head back.  This is always a favorite event.    
-   
-**Feeling Social?** Are you a Snapchat, Tik Toc, Facebook and Instagram user?  Do you like to post pictures and updates on social media platforms? We are looking for some help expanding out social media presence and develop a social media strategy. If you have gifts or passions in the world of social media and would like to help us grow in this area, please let Pastor Chris know.    
-   
-**Kid’s Hope Back to School Pizza & Pumpkin Carving Event \-** KHUSA families and mentors will be having an afternoon of pizza and pumpkin carving, at our church, on Sunday, October 20th from 1:00 \- 3:00 p.m.  Thanks again for your support of this ministry\!  
-   
-**Get Your Rakes Ready \-** The Outreach Team will be hosting our annual Mission Extravaganza on Saturday, November 9\!  Teams will gather at the church for a morning of missions, including leaf raking and delivering of goodies to our community helpers. The extravaganza will conclude with a luncheon as we break bread together and give God thanks for the work he is doing. Make plans to join us on November 9\!  And please help us to reach those who need some yard work done. If you or anyone you knows will need their yard raked, please contact Pastor Chris or Sara and we will make sure to include you (or them) on our list.  
-   
-**Giving Through Venmo  \-** We can be found on Venmo at @NelsonMemorialUMC.  If you don’t know what Venmo is and would like to learn more, information about giving through Venmo can be found on our webpage at [https://nelsonmemorialumc.org/give/venmo/](https://nelsonmemorialumc.org/give/venmo/)  
-   
-**Events this week:**
-
-**Friday, October 11:** Al-Anon, 7:00 pm, Fellowship Hall  
-Youth Lock-in, 8:00 pm, Fellowship Hall  
-   
-**Sunday, October 13:** Administrative Board Planning Retreat, Noon, FH  
-   
-**Monday, October 14:** TOPS, 9:30 am, Lounge  
-   
-Leadership Development Team, 6:00 pm, Lounge  
-   
-Al-Anon Meeting, 8:00 pm, Fellowship Hall  
-   
-**Wednesday, October 16:** Women’s Bible Study, 10:00 am, Lounge  
-   
-Al-Anon, Noon, Fellowship Hall  
-   
-“Being United Methodist” Study, 6:30 pm, Fellowship Hall  
-   
-**Thursday, October 17:** Baby Grace Distribution, 5:00 pm, Annex  
-   
-Choir Rehearsal, 7:00 pm, Sanctuary  
-   
-**Friday, October 11:** Al-Anon, 7:00 pm, Fellowship Hall  
-   
 **Closing Words of Wisdom:**  
 *“In a time of deceit telling the truth is a revolutionary act.”*  
 *― **George Orwell***  
