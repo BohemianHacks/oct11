@@ -1,5 +1,3 @@
-Weekly Update, October 11, 2024
-
 “The Nature of Truth”  
    
 *Jesus answered, “I am the way and the truth and the life. No one comes to the Father except through me. If you really know me, you will know my Father as well. From now on, you do know him and have seen him.”* John 14:6-7  
